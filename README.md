@@ -25,7 +25,7 @@ I am widely known for being an exceptionally active face in the PlayVortex commu
 ---
 
 ## 🌐 Connect With Me
-* **Vortex Profile:** [Koos (ID: 18197)]([https://playvortex.io](https://playvortex.io/users/18197/profile))
+* **Vortex Profile:** [Koos (ID: 18197)]([playvortex.io](https://playvortex.io/users/18197/profile))
 * **Official Platform:** [playvortex.io](https://playvortex.io)
 
 *This profile serves as the official public record that Koos is, and always will be, Kostas on PlayVortex.*
