@@ -7,7 +7,7 @@ Welcome to my official GitHub profile. Within the **Vortex** multiplayer ecosyst
 ## 🏛️ PlayVortex Identity & Status
 
 ### 🆔 Koos is Kostas
-Whether you know me from the early days or the present, **Koos** and **Kostas**.
+Whether you know me from the early days or the present, **Koos** will always be recognized as **Kostas**!
 
 ### 🕹️ Active Presence
 My active profile on the platform is [Koos (ID: 18197)](https://playvortex.io). (Kostas: [Kostas ID: 2](https://playvortex.io/users/2/profile)) 
